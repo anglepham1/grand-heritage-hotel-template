@@ -1,0 +1,1 @@
+grand-heritage-hotel-template
